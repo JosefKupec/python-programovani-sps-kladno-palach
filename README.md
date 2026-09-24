@@ -1,0 +1,1 @@
+# python-programovani-sps-kladno-palach
